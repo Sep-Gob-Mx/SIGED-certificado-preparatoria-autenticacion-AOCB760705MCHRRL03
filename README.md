@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AOCB760705MCHRRL03
+AOCB760705MCHRRL03
